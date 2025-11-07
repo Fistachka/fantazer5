@@ -1,7 +1,7 @@
 <span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"Фантазер" Ярослав Евдокимов 1989г. 1 припев
-![з6](https://github.com/user-attachments/assets/7eb4683c-d266-4e3c-9c48-9ec466c81ee8)
+"Фантазер" Ярослав Евдокимов 1989г. 2 припев
+![з10](https://github.com/user-attachments/assets/e10455ad-a690-40d6-860c-7be20504a153)
 
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/idIQIBY-iSQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
@@ -17,13 +17,13 @@
 Я люблю всё сильнее
 
 Предыдущий урок:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/766429d5-318c-4e05-a012-b9d58e909f8c =200x200)
-stolbitsa.com/fistachka/fantazer<br><br>
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/041e40fa-0e43-4755-9642-311485511c4e =200x200)
+stolbitsa.com/fistachka/fantazer4<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"Fantazer" Yaroslav Evdokimov 1989  3 st verse
-![з6](https://github.com/user-attachments/assets/7eb4683c-d266-4e3c-9c48-9ec466c81ee8)
+"Fantazer" Yaroslav Evdokimov 1989  5 st verse
+![з10](https://github.com/user-attachments/assets/e10455ad-a690-40d6-860c-7be20504a153)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/E_QANMn_H9s" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/JAdJu8cr2FM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
@@ -38,10 +38,6 @@ Nu, a ya
 YA lyublyu vsyo sil'nee
 
 Previous lesson:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/766429d5-318c-4e05-a012-b9d58e909f8c =200x200)
-stolbitsa.com/fistachka/ohrana<br><br>
-
-
-![з10](https://github.com/user-attachments/assets/e10455ad-a690-40d6-860c-7be20504a153)
-![з9](https://github.com/user-attachments/assets/6d176f3f-6d63-4dec-a266-67ae585c4c99)
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/041e40fa-0e43-4755-9642-311485511c4e =200x200)
+stolbitsa.com/fistachka/fantazer4<br><br>
 
