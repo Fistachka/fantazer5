@@ -4,7 +4,7 @@
 ![з10](https://github.com/user-attachments/assets/e10455ad-a690-40d6-860c-7be20504a153)
 
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/idIQIBY-iSQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/74sJk7Ju9Oo" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/zSXJFp-BMiA" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Фантазёр
@@ -25,7 +25,7 @@ stolbitsa.com/fistachka/fantazer4<br><br>
 "Fantazer" Yaroslav Evdokimov 1989  5 st verse
 ![з10](https://github.com/user-attachments/assets/e10455ad-a690-40d6-860c-7be20504a153)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/E_QANMn_H9s" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/9xnVmLZ-LQA" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/JAdJu8cr2FM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Fantazyor
